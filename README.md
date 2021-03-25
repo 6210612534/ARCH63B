@@ -12,4 +12,4 @@
 
 6.CLIP7<https://youtu.be/hsokugeLlog>
 
-
+7.CLIP8<https://youtu.be/EbqeLndocZg>
